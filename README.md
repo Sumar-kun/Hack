@@ -1,0 +1,2 @@
+# Hack
+Disa tanggung sendiri
